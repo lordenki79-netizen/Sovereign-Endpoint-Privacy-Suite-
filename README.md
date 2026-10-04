@@ -36,7 +36,7 @@ Choose your desired action from the interactive master control panel.
 
 
  Price: $15 flat (One-time purchase, perpetual personal license).
-
+https://timcopeland.gumroad.com/l/glpfu
 
 
 
